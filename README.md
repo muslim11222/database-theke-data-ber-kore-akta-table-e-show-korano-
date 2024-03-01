@@ -1,0 +1,1 @@
+# database-theke-data-ber-kore-akta-table-e-show-korano-
